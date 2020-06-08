@@ -9,17 +9,17 @@ of America.
 
 Three of my favorite books are:
 
-- *Mindstorms* by Seymour Papert
-- *Welcome to the Monkey House* by Kurt Vonnegut
-- *Persepolis* by Marjane Satrapi
+- The 7 Habits of Highly Effective People by Stephen Covey
+- How to Win Friends and Influence People by Dale Carnegie
+- Transcendence: My Spiritual Experiences with Pramukh Swamiji by A. P. J. Abdul Kalam and Arun Tiwari
 
 ### Food
 
-Last night I dreamt about eating in these restaurants:
+Foods that I love most to eat:
 
-1. Linger in Denver.
-2. Azura in Jerusalem.
-3. Gemma in New York City.
+1. Bombay Sandwich.
+2. Falafel in Pita.
+3. Indian Veg Thali.
 
 ### Contact
 
